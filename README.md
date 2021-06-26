@@ -3,4 +3,4 @@
 -->
 Welcome :з
 
-![hehe](Puma_cute.png)
+![hehe](тазы2021.jpg)
